@@ -55,6 +55,12 @@ This watch also features an "ANCRE DE PRECISION" marking, indicating a lever esc
 
 Another similar piece is valued around $100-$200, depending on its condition and specific features such as additional engravings or provenance.
 
+Summary:
+
+This pocket watch appears to be an authentic Swiss-made antique, characterized by the "ANCRE DE PRECISION" engraving, indicating a lever escapement mechanism, and the "0.800" silver purity mark. These features are consistent with high-quality Swiss pocket watches produced in the early 20th century. Similar pocket watches, marked with "ANCRE DE PRECISION" and having a silver content of 80%, are currently listed on various platforms, such as eBay and Etsy, with values ranging from $100 to $200. The price variation depends significantly on the watch's condition, functionality, and additional features like unique engravings or provenance documentation​.
+
+The detailed engravings on your watch, along with its mechanical movement, further support its authenticity and quality. Watches with similar attributes are appreciated by collectors and enthusiasts for their craftsmanship and historical value. For an accurate valuation and thorough authentication, it is advisable to consult with a professional watch appraiser or horologist who can provide an in-person examination and detailed assessment. This approach ensures that all aspects of the watch, including its movement, case, and overall condition, are meticulously evaluated to determine its true value and authenticity.
+
 #
 ### Related Links
 
